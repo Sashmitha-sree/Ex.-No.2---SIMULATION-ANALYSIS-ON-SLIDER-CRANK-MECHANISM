@@ -36,9 +36,9 @@
 
 ## Output
 
-### Name:JYOTSHANA S R
+### Name: Sashmitha Sree K V 
 
-### Register Number: 212224230111
+### Register Number: 212224230255
 
 ![image](https://github.com/user-attachments/assets/00ae5a35-91ec-4944-aece-784d672885a1)
 
